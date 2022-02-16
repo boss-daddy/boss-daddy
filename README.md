@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @boss-daddy
+- 👀 I’m interested in making money
+- 🌱 I’m currently learning how to turn code into currency
+- 💞️ I’m looking to collaborate on profitable software
+- 📫 How to reach me : julian@edges.fund
